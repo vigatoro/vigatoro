@@ -1,6 +1,6 @@
-hello! my name is violet, feel free to give me any nicknames
+hello! my name is violet, feel free to give me any nicknames.
 i dont know why im here, im pretty bored
-pretty swag too
+.pretty swag too
 thats it. i also draw yea
 
 <!---
